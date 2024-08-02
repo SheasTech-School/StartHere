@@ -14,6 +14,6 @@ There are two factions of humans and classifications in between on this Earth:
 
 Becoming a Dream takes work, time, dedication, discipline and energy. Nothing worth anything comes cheap or free and many times will never be easy.
 
-Peace Be Unto You!
+Peace Be Unto You!👏
 
 Shea
