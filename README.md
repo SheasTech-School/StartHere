@@ -1,6 +1,6 @@
 # StartHere
 
-The goal to enter a career in Cybersecurity, Linux Systems Administration, Cloud DevOps or a Networking Engineer is just like anything else. You can out what you put in as far as effort. 
+The goal to enter a career in Cybersecurity, Linux Systems Administration, Cloud DevOps or a Networking Engineer is just like anything else. You get out what you put in as far as effort. 
 
 If you spend no real time on your prospective career option, do not expect any genuine returns.
 
